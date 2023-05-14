@@ -2,8 +2,8 @@
 ### Designed By 
 
 `Mohamed Ahmed Abd El-Wahab`
-## [Contact Mohamed](https://twitter.com/0xMohomiester) 
+## [Contact Mohamed](https://www.linkedin.com/in/0xmohomiester/) 
 
 `Noor-Eldin Mohamed`
-## [Conatct Noor](https://www.facebook.com/profile.php?id=100011367532538) 
+## [Conatct Noor](https://www.linkedin.com/in/noor-eldin-mohamed-81b004248/) 
 
